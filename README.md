@@ -1,1 +1,1 @@
-# Lets Grow More Virtual Internship Program for August 2021
+# Let's Grow More Virtual Internship Program for August 2021
